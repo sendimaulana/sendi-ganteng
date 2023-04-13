@@ -1,2 +1,3 @@
 # sendi-ganteng
-coba-coba
+kamu jelek
+dimana kamu
